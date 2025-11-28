@@ -19,4 +19,6 @@ Feel free to browse through the certificates to verify my credentials and skills
 ## Contact
 
 For any queries or requests regarding the certificates, please contact me.
+aswanthksivadasan@gmail.com
+
 
